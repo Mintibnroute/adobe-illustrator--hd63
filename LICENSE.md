@@ -1,4 +1,4 @@
-# 
+# Enhance Adobe Illustrator for macOS with rare Adobe Illustrator for macOS Script | vector tools + cloud sync, the #1 script. Includes vector tools and cloud sync for a smoother
 
 
 
